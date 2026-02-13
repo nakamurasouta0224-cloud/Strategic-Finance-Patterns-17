@@ -1,0 +1,1 @@
+# Strategic-Finance-Patterns-17
